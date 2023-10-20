@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @santasas32
-- 👀 I’m interested in music, sport, IT
-- 🌱 I’m currently learning in school
+- 🌱 I’m currently learning in Moscow Aviation Institute
 - 💞️ I’m looking to collaborate on all
 - 📫 How to reach me: tg - @santasas32
 
